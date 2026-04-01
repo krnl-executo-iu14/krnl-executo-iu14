@@ -1,4 +1,4 @@
-
+Elevate your krnl executor experience with stlth krnl executor | speed + no-cd, the executor that does it all! From speed to no-cd, we provide the tools you need to succeed. Our commitment to quality and innovation ensures you're always one step ahead.
 
 
 ---
